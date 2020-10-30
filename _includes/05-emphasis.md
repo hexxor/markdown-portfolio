@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Organized, **analytical** and open mind, very *reliable* and performing well **under pressure**.
